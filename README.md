@@ -1,0 +1,2 @@
+- Hello, my name is Yuri, i'm a infrastructure analyst inside Maria Chocolate, i get hired in 02-02-2022 and now i'm trying to get new ideas and do my best inside this job.
+- Welcome to my professional ( Maria Chocolate ) profile.
